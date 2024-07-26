@@ -14,7 +14,8 @@
 [Connect me at Facebook](https://www.facebook.com/maneek.tmg)
 <hr/>
 
->Thank for my visiting.I hope you like it. Its in development phase 😘😘
+>Thank for my visiting.I hope you like it. Its in development phase 😊😊
+>
 
  
 
