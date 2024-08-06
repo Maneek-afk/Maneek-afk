@@ -1,4 +1,4 @@
-### Hi there 👋I am Manik Tamang from Nepal.
+### Hi there 
 <hr/>
 
 ## `About me`
